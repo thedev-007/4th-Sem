@@ -1,0 +1,1 @@
+Sound is a ***mechanical energy*** that propagates as a wave through a *transmission* medium.

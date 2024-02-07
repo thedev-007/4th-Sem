@@ -1,0 +1,1 @@
+The ability to stop or reduce the passage of X-Ray.

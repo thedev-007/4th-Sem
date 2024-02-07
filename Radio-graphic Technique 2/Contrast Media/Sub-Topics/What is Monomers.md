@@ -1,0 +1,1 @@
+Monomer means single benzene ring.
